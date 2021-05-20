@@ -1,2 +1,3 @@
 # taiproject
-just a templait for now
+achoub.mohamed.ihab@gmail.com
+IG => @_mohamed_ivan
